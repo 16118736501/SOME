@@ -8,10 +8,20 @@ Andre kaller det ikke musikk engang! For punk er så enormt mye mer!
 
 Og jeg er en pønker. Og dersom du finner meg, et eller annet sted. Så er jeg stort sett alltid like skylding som det jeg påstår jeg er.
 
-Og kjenner du meg eller noen av mine godt nok, har du blodspør i både returbøtter og bevispengespann nok til å klare deg du, så fint for deg. Hurra.
+Og kjenner du meg eller noen av mine godt nok, har du blod-, spor- og eventuelle andre godsaker i både returbøtter og bevispengespann nok til å klare deg du, så fint for deg. Hurra.
 Og mitt personnummer er 16118736501. 
 Fortsatt stille på radio, men lytter ikke uansett. Godtar det meste. 
-Lever og hater sub.
+Lever og hater sub. Hater også: korrupte samfunn som spiser andres mat og basjer med farger i blodspor-hundenes-velforeningens navn:
+Ja. Hurra for popen. Og prisen. Og dopen. Og deg. Og meg. Og Jokke. Og resten. Av. Fucking. Hele. Alle. Sammen: Liten og stor, stor og liten. Dum og smart. Snill eller slem:
+HEI: JEG FORTELLER DEG GJERNE LITT OM MEG SELV: MEN ALLER HELST HAR JEG LYST AT DU SKAL HA DET FINT. OG DERSOM DU HAR LYST Å JOBBE I POLITIET ELLER PÅ SYKEHUSET. SÅ HÅPER JEG DU VET OM FRIDAGEN MIN OG PASSER PÅ Å ALLTID BÆRE RIKTIG UNIFORM RUNDT MEG!
+
+Vennligst, 
+
+Skyldig i alt.
+
+Anders Pippi Tednes. 161187
+Voksennummer: 36501
+Voksesmerter: noen, Meen. Kalkulator: OK. Gå din vei.
 
 Foretrekker 420.
 Godtar: Heroin:
